@@ -13,13 +13,13 @@
 
 - 👨‍💻 All of my projects are available at [https://marcoibarra.com](https://marcoibarra.com)
 
-- 📝 I regulary write articles on [http://blog.marcoibarra.com](http://blog.marcoibarra.com)
+- 📝 I write articles on [http://blog.marcoibarra.com](http://blog.marcoibarra.com)
 
 - 💬 Ask me about **Project/Compliance/Expectations Management + Cloud Architecture**
 
 - 📫 How to reach me **hola@marcoibarra.com**
 
-- 📄 Know about my experiences [https://www.icloud.com/pages/0UmaEgoekhMMeFRLnuCuZ5gKQ#MAIC_HR_CV](https://www.icloud.com/pages/0UmaEgoekhMMeFRLnuCuZ5gKQ#MAIC_HR_CV)
+- 📄 Know about my experiences [See my Resume / CV](https://www.icloud.com/pages/0UmaEgoekhMMeFRLnuCuZ5gKQ#MAIC_HR_CV)
 
 - ⚡ Fun fact **I also make music!**
 
