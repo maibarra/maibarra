@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at [https://marcoibarra.com](https://marcoibarra.com)
 
-- 📝 I write articles on [http://blog.marcoibarra.com](http://blog.marcoibarra.com)
+- 📝 I write articles on [https://blog.marcoibarra.com](https://blog.marcoibarra.com)
 
 - 💬 Ask me about **Project/Compliance/Expectations Management + Cloud Architecture**
 
