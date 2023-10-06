@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on [Building Useful, Growth & Happiness-oriented products!](https://marcoibarra.com/#portfolio)
 
-- 🤝 I’m looking for help with [Getting a Job!](https://marcoibarra.com)
+- 🤝 I’m looking for help with [Getting a Job!](https://linkedin.com/in/marcoaibarra)
 
 - 👨‍💻 All of my projects are available at [https://marcoibarra.com](https://marcoibarra.com)
 
@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **hola@marcoibarra.com**
 
-- 📄 Know about my experiences [See my Resume / CV](https://www.icloud.com/pages/0UmaEgoekhMMeFRLnuCuZ5gKQ#MAIC_HR_CV)
+- 📄 Know about my experiences [See my Resume / CV]([https://www.icloud.com/pages/0UmaEgoekhMMeFRLnuCuZ5gKQ#MAIC_HR_CV](https://www.icloud.com/iclouddrive/02eGuH91lLt7zc5YG0EOTfoMg#MAIC_HR_CV3P))
 
 - ⚡ Fun fact **I also make music!**
 
